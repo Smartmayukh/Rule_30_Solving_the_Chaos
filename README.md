@@ -1,0 +1,1 @@
+# Rule_30_Solving_the_Chaos
